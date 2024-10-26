@@ -1,4 +1,4 @@
-# Notes on the Hebrew Scriptures
+# Notes on the Scriptures
 
 Quick Start:
 
